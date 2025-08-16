@@ -1,4 +1,4 @@
-# ILLPHATED Kick Viewbot
+# KICK PROXYLESS VIEWBOT
 
 🚀 **Under Development** | **No Proxies Required**
 
